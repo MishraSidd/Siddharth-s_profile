@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @SpidersGitHub<br>👀 I’m interested in AI/ML<br>🌱 I’m currently learning about deep learning and complete MLOps cycle<br>💞️ I’m looking to collaborate on ML Projects<br>📫 How to reach me, email me at siddharth.official020@gmail.com<br>😄 Pronouns: He/Him<br>⚡ Fun fact: No one is going to read this (-_-)
+👋 Hi, I’m @MishraSidd<br>👀 I’m interested in AI/ML<br>🌱 I’m currently learning about deep learning and complete MLOps cycle<br>💞️ I’m looking to collaborate on ML Projects<br>📫 How to reach me, email me at siddharth.official020@gmail.com<br>😄 Pronouns: He/Him<br>⚡ Fun fact: No one is going to read this (-_-)
 
 
 ## 🌐 Socials:
